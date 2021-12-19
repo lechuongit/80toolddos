@@ -1,2 +1,2 @@
-# Tor's hammer
-## Written by not me
+# TOOL DDOS PHANG NHAU 1 SỐNG 1 CÒN
+## LƯU Ý: KHÔNG DDOS CÁC TRANG CHÍNH PHỦ
